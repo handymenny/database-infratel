@@ -2,7 +2,7 @@
 
 ### Consultazione 2017 Update Agosto 2017<br>
 [https://www.infratelitalia.it/documentazione/consultazioni/consultazione-pubblica-2017-mappatura-delle-aree-grigie-e-nere/](https://web.archive.org/web/20180418135023/https://www.infratelitalia.it/documentazione/consultazioni/consultazione-pubblica-2017-mappatura-delle-aree-grigie-e-nere/)
-### Consultazione 2017 Update 2018<br>
+### Consultazione 2017 Update Aprile 2018<br>
 https://www.infratelitalia.it/archivio-documenti/documenti/consultazione-pubblica-2017-mappatura-aree-grigie-e-nere-aggiornamento-aprile-2018
 ### Consultazione 2017 Bianche<br>
 https://www.infratelitalia.it/archivio-documenti/documenti/esito-consultazione-sul-piano-di-investimenti-per-la-diffusione-della-banda-ultralarga-in-calabria-puglia-e-sardegna-mappatura-aree-bianche
