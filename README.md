@@ -20,7 +20,7 @@ https://www.infratelitalia.it/archivio-documenti/documenti/relazione-2021-reti-f
 Allegato D Tender_279 su piattaforma [ingate.invitalia.it](https://ingate.invitalia.it)
 ### Bando 1 Giga TN-BZ v2<br>
 Allegato D Tender_372 su piattaforma [ingate.invitalia.it](https://ingate.invitalia.it)
-### Questionario Consultazione2024<br>
+### Questionario Consultazione 2024<br>
 https://www.infratelitalia.it/archivio-documenti/documenti/avviso-mappatura-e-consultazione-prossimita
-### Consultazione2024<br>
+### Consultazione 2024<br>
 https://www.infratelitalia.it/archivio-news/notizie/esito-mappatura-2024
